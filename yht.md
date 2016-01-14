@@ -1,7 +1,7 @@
 #  **严浩同**   
 ##  ~~(眼好痛)~~  
 ##  人物简介  
-  ![image]( http://ww4.sinaimg.cn/           owap360/006bR5fkjw1ezzeziu4izj31401hcn6o.jpg )    
+  ![image](http://ww3.sinaimg.cn/wap360/006bR5fkjw1ezzezvr2i3j31401hcn6o.jpg)    
    ### 爱好:  
      1. 写作文  
      2. 学习  
